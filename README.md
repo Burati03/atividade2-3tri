@@ -1,1 +1,0 @@
-# atividade2-3tri
